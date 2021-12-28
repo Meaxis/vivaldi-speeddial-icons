@@ -1,0 +1,1 @@
+# vivaldi-speeddial-icons
